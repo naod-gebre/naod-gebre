@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @naod-gebre
+- 👀 I’m interested in Formula 1
+- 🌱 I’m currently learning how to become a Pilot 🛫
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me - Email: naod20042009@gmail.com
